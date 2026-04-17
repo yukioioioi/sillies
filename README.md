@@ -1,11 +1,13 @@
-$\texttt{\color{#a02020}˚₊‧꒰ა IM NOT DONE GO AWAY!!! /pos /jk ໒꒱ ‧₊˚}$
+# $\texttt{\color{#FFFFFF}˚₊‧꒰ა ʏᴏᴜ'ᴠᴇ ᴅɪꜱᴄᴏᴠᴇʀᴇᴅ ᴍᴇ ʏᴇᴛ ᴀɢᴀɪɴ.. ໒꒱ ‧₊˚}$
 
-![High-res groovy card for Jamil&#39;s birthday- La Bonbonnière   12th September 2025 (JP server) __ #twst #twsitedwonderland #jamil #jamilviper](https://github.com/user-attachments/assets/8b065813-d0eb-4002-841d-ed410d5e8763)
+<img width="736" height="414" alt="download (48)" src="https://github.com/user-attachments/assets/68adcdc6-df28-4440-87a4-6c535e2c8b30" />
+
+## ✦•············································•✦•············································•✦
 
 <details>
 
-<summary>Pony Town Notes !!</summary>
+<summary> BYI ᯓᡣ𐭩 </summary>
 
-### Nothing yet...go back noww
+- ## Whoops! Under construction!!
 
 </details>
