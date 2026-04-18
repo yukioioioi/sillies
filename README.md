@@ -19,6 +19,7 @@
 - I'm not very good at comforting people, I'm really sorry about that (T-T) I'll still try my best to make you feel better tho!
 > ( ´･･)ﾉ(._.`)
 
+### People who are under 12 or 20+ pls iwc! (Unless I knew you beforehand)
 </details>
 
 <details>
@@ -28,13 +29,17 @@
 - P*dophile, lolicon
 > Especially when u s*xualize kids/minors, GET OUT.
 
-- Proshipper, If u ship problematic ships, Incest Shipper
+- Proshipper, If u ship problematic ships, Incest shipper
 > If you're one of those people that are like "straight ships are boring" or smth, then also GET OUT.
 
 - Racist, Homophobic, Transphobic
 
 - Looking to have a romantic relationship
 > Esp if I don't know you/Just met, like naww???
+
+- If u support corrupt governments / wanting to talk about politics
+> Kinda targetted,, Like no bro I don't like the orange guy of America, why are u asking anyways and WHO R U.
+
 </details>
 
 # Under Construction ,, Comeback later!
