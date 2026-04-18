@@ -8,7 +8,7 @@
 
 <summary> ​𝘽𝙔𝙄 ᯓᡣ𐭩 </summary>
 
-- Please be careful of what you to say to me! Do not make any racist, homophobic, inappropriate, or weird comments/jokes, especially if we're not close.
+- Please be careful of what you to say to me! Do not make any racist, homophobic, or inappropriate comments/jokes, especially if we're not close.
 
 - If I ever make you uncomfortable like maybe yapping too much or accidentally crossing your boundaries, feel free to tell me!
 
