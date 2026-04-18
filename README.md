@@ -19,6 +19,10 @@
 - I'm not very good at comforting people, I'm really sorry about that (T-T) I'll still try my best to make you feel better tho!
 > ( ´･･)ﾉ(._.`)
 
+- I get easily anxious even if it's for no reason at all, so please iwc. (caution & care)
+
+- I rarely interact first so please please interact w me first, I'd really appreciate it !
+
 ### People who are under 12 or 20+ pls iwc! (Unless I knew you beforehand)
 </details>
 
