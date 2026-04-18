@@ -69,4 +69,6 @@
 
 </details>
 
+<img width="601" height="113" alt="580340374-c192b747-abd4-405f-879e-25d4f65f5a9d" src="https://github.com/user-attachments/assets/1374a5b0-e1ae-42b9-98d4-f39dd762b0d0" />
+
 # 𝕎𝕙𝕠𝕠𝕡𝕤, 𝕤𝕥𝕚𝕝𝕝 𝕚𝕟 𝕡𝕣𝕠𝕘𝕣𝕖𝕤𝕤! ℂ𝕠𝕞𝕖𝕓𝕒𝕔𝕜 𝕝𝕒𝕥𝕖𝕣
