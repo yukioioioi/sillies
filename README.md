@@ -2,7 +2,7 @@
 
 <img width="736" height="414" alt="silver equestrian club wear groovy" src="https://github.com/user-attachments/assets/5910a38a-2ea7-40fa-acbc-5c7f51116d98" />
 
-# ✦•······································•✦•······································•✦
+# ✦•····································•✦•····································•✦
 
 # ⸝⸝ ᴄᴀʟʟ ᴍᴇ: ʏᴜᴋɪᴏ / ᴋɪᴏ / ʏᴜᴋɪ ⸝⸝
 <details>
@@ -24,7 +24,7 @@
 
 - I rarely interact first so please please interact w me first, I'd really appreciate it !
 
-### People who are under 12 or 20+ pls iwc! (Unless I knew you beforehand)
+### People who are under 12 or 20+ pls iwc! (Unless I knew/int w you beforehand)
 </details>
 
 <details>
@@ -42,7 +42,7 @@
 - <ins>Looking to have a romantic relationship</ins>
 > Esp if I don't know you/Just met, like naww?? srry
 
-- <ins>If u support corrupt governments / wanting to talk about politics</ins>
+- <ins>If u support corrupt governments / want to talk about politics</ins>
 > Kinda targetted,, Like no bro I don't like the ~~orange guy of America~~, why are u asking anyways and WHO R U.
 
 </details>
