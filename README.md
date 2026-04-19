@@ -127,6 +127,7 @@
 - ᴅᴏᴋɪ ᴅᴏᴋɪ ʟɪᴛᴇʀᴀᴛᴜʀᴇ ᴄʟᴜʙ
 - ᴏᴍɴɪꜱᴄɪᴇɴᴛ ʀᴇᴀᴅᴇʀ'ꜱ ᴠɪᴇᴡᴘᴏɪɴᴛ
 - ᴛɪᴀɴ ɢᴜᴀɴ ᴄɪ ꜰᴜ (ʜᴇᴀᴠᴇɴ ᴏꜰꜰɪᴄɪᴀʟ'ꜱ ʙʟᴇꜱꜱɪɴɢ)
+> etc. !! Some of my fandoms are kinda niche, sometimes dead, or still popular but idk, I'm too lazy to list all of them.
   
 </details>
 
