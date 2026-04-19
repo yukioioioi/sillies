@@ -1,8 +1,8 @@
-# $\texttt{\color{#FFFFFF}˚₊‧꒰ა ʏᴏᴜ'ᴠᴇ ᴅɪꜱᴄᴏᴠᴇʀᴇᴅ ᴍᴇ ʏᴇᴛ ᴀɢᴀɪɴ.. ໒꒱ ‧₊˚}$
+## $\texttt{\color{#FFFFFF}˚₊‧꒰ა ʏᴏᴜ'ᴠᴇ ᴅɪꜱᴄᴏᴠᴇʀᴇᴅ ᴍᴇ ʏᴇᴛ ᴀɢᴀɪɴ.. ໒꒱ ‧₊˚}$
 
 <img width="736" height="414" alt="silver equestrian club wear groovy" src="https://github.com/user-attachments/assets/5910a38a-2ea7-40fa-acbc-5c7f51116d98" />
 
-# ✦•····································•✦•····································•✦
+## ✦•····································•✦•····································•✦
 
 # ⸝⸝ ᴄᴀʟʟ ᴍᴇ: ʏᴜᴋɪᴏ / ᴋɪᴏ / ʏᴜᴋɪ ⸝⸝
 <details>
@@ -66,17 +66,26 @@
 - 𝙵𝚕𝚞𝚎𝚗𝚝(?) 𝚒𝚗 𝚎𝚗𝚐𝚕𝚒𝚜𝚑, 𝚋𝚞𝚝 𝙸 𝚐𝚎𝚝 𝚛𝚊𝚝𝚑𝚎𝚛 𝚕𝚊𝚣𝚢 𝚜𝚘 𝙸 𝚘𝚏𝚝𝚎𝚗 𝚝𝚢𝚙𝚎 𝚠𝚒𝚝𝚑 𝚠𝚛𝚘𝚗𝚐 𝚐𝚛𝚊𝚖𝚖𝚊𝚛 𝚘𝚛 𝚜𝚙𝚎𝚕𝚕𝚒𝚗𝚐𝚜. 𝙸 𝚊𝚕𝚜𝚘 𝚛𝚊𝚛𝚎𝚕𝚢 𝚜𝚙𝚎𝚊𝚔 𝚝𝚊𝚐𝚊𝚕𝚘𝚐/𝚏𝚒𝚕𝚒𝚙𝚒𝚗𝚘 𝚋𝚞𝚝 𝚢𝚎𝚜, 𝙸 𝚌𝚊𝚗 𝚜𝚙𝚎𝚊𝚔 𝚊𝚗𝚍 𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍 𝚠𝚎𝚕𝚕.
 ### **Date I Spawned: Aug/11**
 
-
 </details>
 
-## 
+### 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 
 <details>
 
-<summary> ​​𝗡𝗼𝘁𝗲𝘀 𝗳𝗼𝗿 𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 .ᐟ </summary>
+<summary> ​​𝗡𝗼𝘁𝗲𝘀 𝗳𝗼𝗿 𝗣𝗼𝗻𝘆 𝗧𝗼𝘄𝗻 📋 </summary>
 
+## 𝕊𝕥𝕒𝕥𝕦𝕤 𝔾𝕦𝕚𝕕𝕖
+- [🟢] 𝕆𝕟𝕝𝕚𝕟𝕖
+> I rarely use this,, But yeah! It means I'm in game, so feel free to int or C+H!
+
+- [🌙] 𝕀𝕕𝕝𝕖
+> Now this I use a lot,, I'm still online ofc, but I'm probably offtab or literally idle irl...C+H is still encouraged ofc! (Unless specified not to) Preferably w2i (Slr tho)
+
+- [⛔] 𝔹𝕦𝕤𝕪
+> This probably means I'm not in the mood to int much, or maybe I'm actually busy irl,, Just make sure to read my name if I specify anything (ex: W2i, DNIUF, DNIUCF, DNIUP, etc.) My close friends/party are an exception yesyes, esp if we're also friends on Discord!
+
+### ʚɞ 𝘖𝘷𝘦𝘳𝘢𝘭𝘭, 𝘫𝘶𝘴𝘵 𝘮𝘢𝘬𝘦 𝘴𝘶𝘳𝘦 𝘵𝘰 𝘤𝘩𝘦𝘤𝘬 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘣𝘺𝘪 ʚɞ
+  
 </details>
-
-<img width="601" height="113" alt="580340374-c192b747-abd4-405f-879e-25d4f65f5a9d" src="https://github.com/user-attachments/assets/1374a5b0-e1ae-42b9-98d4-f39dd762b0d0" />
 
 # 𝕎𝕙𝕠𝕠𝕡𝕤, 𝕤𝕥𝕚𝕝𝕝 𝕚𝕟 𝕡𝕣𝕠𝕘𝕣𝕖𝕤𝕤! ℂ𝕠𝕞𝕖𝕓𝕒𝕔𝕜 𝕝𝕒𝕥𝕖𝕣
