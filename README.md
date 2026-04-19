@@ -85,6 +85,19 @@
 > This probably means I'm not in the mood to int much, or maybe I'm actually busy irl,, Just make sure to read my name if I specify anything (ex: W2i, DNIUF, DNIUCF, DNIUP, etc.) My close friends/party are an exception yesyes, esp if we're also friends on Discord!
 
 ### ʚɞ 𝘖𝘷𝘦𝘳𝘢𝘭𝘭, 𝘫𝘶𝘴𝘵 𝘮𝘢𝘬𝘦 𝘴𝘶𝘳𝘦 𝘵𝘰 𝘤𝘩𝘦𝘤𝘬 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘣𝘺𝘪 ʚɞ
+
+## 𝕆𝕥𝕙𝕖𝕣𝕤 📜
+- I sometimes forget which ones are who in my friendslist...I do put notes for each person but sometimes I forget to put one,, So sorry for that!
+> This happens when I don't int or I'm not close with the person (￣^￣)
+
+- I hide freely, if you're covering me or my friends then I'm sorry, but I'll have to hide you,, ( ,,⩌'︿'⩌ꐦ,,)
+> I also hide people who annoy me (usually when I'm in a bad mood)
+
+- If you're a friend of mine, pls pls int first, sometimes when we're not that close, I get scared/shy to int first,,,
+> ( ._. )"" And also pls pls don't be scared to approach me too!
+
+- After we've int for a while, feel free to add me! I'm usually the one to send a request first, but it's okay to send me one too!
+> If you send one and I don't accept, that probably means we just need to int more,, (It's like, u have to reach a certain friendship lvl with me :P )
   
 </details>
 
