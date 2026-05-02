@@ -145,23 +145,67 @@
 </details>
 
 <details>
+  
+<summary> 𝐅𝐚𝐯 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫𝐬 ˗ˏˋ ♡ ˎˊ˗ </summary>
+  
+- ‎ꜰʀᴀɢᴀʀɪᴀ ᴍᴇᴍᴏʀɪᴇꜱ
+> Willmesh, Chaco, Arupek, Romaricche
 
-<summary> 𝐊𝐢𝐧𝐬 ˗ˏˋ ♡ ˎˊ˗ </summary>
+- ‎ᴛᴡɪꜱᴛᴇᴅ ᴡᴏɴᴅᴇʀʟᴀɴᴅ
+> Silver, Jamil, Ruggie, Jade
 
-> It's a lot, IM SO SORRY..
-- ᴡɪʟʟᴍᴇꜱʜ, ᴄʜᴀᴄᴏ [ꜰʀᴀɢᴍᴇᴍ]
-- ᴅᴇᴜᴄᴇ, ᴄᴀᴛᴇʀ [ᴛᴡꜱᴛ]
-- ɴᴀʏᴜᴛᴀ, ꜱʜɪᴋɪ [ᴘᴀʀᴀʟɪᴠᴇ]
-- ᴛᴀᴍᴀᴋɪ, ᴍɪᴛꜱᴜᴋɪ [ɪᴅ7]
-- ᴋʏᴜᴜꜱᴀᴋᴜ, ꜱɪɢᴍᴀ [ʙꜱᴅ]
-- ɴᴏᴇ, ᴠᴀɴɪᴛᴀꜱ [ᴠɴᴄ]
-- ʀᴇᴏ, ɴᴇꜱꜱ [ʙʟᴜᴇ ʟᴏᴄᴋ]
-- ɴɪᴄᴇ, ʟɪɴ ʟɪɴɢ [ᴛʙʜx]
-- ᴀʟɪꜱᴛᴀɪʀ [ᴛᴀɪꜱʜᴏ x ᴀʟɪᴄᴇ]
-- ꜱᴀʏᴏʀɪ [ᴅᴅʟᴄ]
-- ᴋɪᴍ ᴅᴏᴋᴊᴀ [ᴏʀᴠ]
-- ᴍᴜ Qɪɴɢ [TGCF]
-- ᴏɪᴋᴀᴡᴀ, ᴋᴇɴᴍᴀ [ʜQ]
+- ‎ᴘᴀʀᴀᴅᴏx ʟɪᴠᴇ
+> Shiki, Nayuta, Kanata
+
+- ‎ɪᴅᴏʟɪꜱʜ7
+> Tamaki, Sogou, Isumi, Tenn
+‎
+- ‎ʜʏᴘɴᴏꜱɪꜱ ᴍɪᴄ
+> Doppo, Ramuda, Dice, Gentaro
+‎
+- ‎18ᴛʀɪᴘ
+‎> ???
+
+- ‎ᴇɴꜱᴇᴍʙʟᴇ ꜱᴛᴀʀꜱ (ᴋɪɴᴅᴀ ɴᴇᴡ)
+‎> Mao, Hajime, Hinata, Nazuna
+
+- ‎ᴀ3! ᴀᴄᴛ! ᴀᴅᴅɪᴄᴛ! ᴀᴄᴛᴏʀꜱ!
+‎> ???
+
+- ‎ʙᴏʏꜱ ʙᴇ ᴍᴀɪᴅ
+‎> Ranto, Kiku
+
+- ‎ᴀʟɪᴇɴ ꜱᴛᴀɢᴇ
+‎> Luka, Hyuna, Hyunwoo
+
+- ‎ʙᴜɴɢᴏ ꜱᴛʀᴀʏ ᴅᴏɢꜱ
+‎> Sigma, Kyuusaku, Gin, Tachihara
+
+- ‎ᴠᴀɴɪᴛᴀꜱ ɴᴏ ᴄᴀʀᴛᴇ
+‎> Noè, Astolfo, Louis, Johann
+
+- ‎ᴍᴏʀɪᴀʀᴛʏ ᴛʜᴇ ᴘᴀᴛʀɪᴏᴛ
+‎> Louis, William, Irene/James
+
+- ‎ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴅᴇᴍᴏɴ ꜱᴄʜᴏᴏʟ ɪʀᴜᴍᴀ-ᴋᴜɴ (ᴍᴀɪʀɪᴍᴀꜱʜɪᴛᴀ ɪʀᴜᴍᴀ-ᴋᴜɴ)
+> Opera, Lied, Asmodeus
+
+- ‎ʙʟᴜᴇ ʟᴏᴄᴋ
+> Reo, Ness, Chevalier, Kurona
+
+- ‎ᴛᴏ ʙᴇ ʜᴇʀᴏ x
+> Little Johnny, Cyan, Nice, Lin Ling
+
+- ‎ᴛᴀɪꜱʜᴏ x ᴀʟɪᴄᴇ
+> Alistair, Snow White
+
+- ‎ᴏᴍɴɪꜱᴄɪᴇɴᴛ ʀᴇᴀᴅᴇʀ'ꜱ ᴠɪᴇᴡᴘᴏɪɴᴛ
+> Kim Dokja, Han Sooyoung, Uriel
+
+- ‎ᴛɪᴀɴ ɢᴜᴀɴ ᴄɪ ꜰᴜ (ʜᴇᴀᴠᴇɴ ᴏꜰꜰɪᴄɪᴀʟ'ꜱ ʙʟᴇꜱꜱɪɴɢ)
+> Xie Lian, Mu Quing, Feng Xin
+‎
+### + More, will update soon?
   
 </details>
 
