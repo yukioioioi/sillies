@@ -164,28 +164,28 @@
 > Doppo, Ramuda, Dice, Gentaro
 ‎
 - ‎18ᴛʀɪᴘ
-‎> ???
+> ???
 
 - ‎ᴇɴꜱᴇᴍʙʟᴇ ꜱᴛᴀʀꜱ (ᴋɪɴᴅᴀ ɴᴇᴡ)
-‎> Mao, Hajime, Hinata, Nazuna
+> Mao, Hajime, Hinata, Nazuna
 
 - ‎ᴀ3! ᴀᴄᴛ! ᴀᴅᴅɪᴄᴛ! ᴀᴄᴛᴏʀꜱ!
-‎> ???
+> ???
 
 - ‎ʙᴏʏꜱ ʙᴇ ᴍᴀɪᴅ
-‎> Ranto, Kiku
+> Ranto, Kiku
 
 - ‎ᴀʟɪᴇɴ ꜱᴛᴀɢᴇ
-‎> Luka, Hyuna, Hyunwoo
+> Luka, Hyuna, Hyunwoo
 
 - ‎ʙᴜɴɢᴏ ꜱᴛʀᴀʏ ᴅᴏɢꜱ
-‎> Sigma, Kyuusaku, Gin, Tachihara
+> Sigma, Kyuusaku, Gin, Tachihara
 
 - ‎ᴠᴀɴɪᴛᴀꜱ ɴᴏ ᴄᴀʀᴛᴇ
-‎> Noè, Astolfo, Louis, Johann
+> Noè, Astolfo, Louis, Johann
 
 - ‎ᴍᴏʀɪᴀʀᴛʏ ᴛʜᴇ ᴘᴀᴛʀɪᴏᴛ
-‎> Louis, William, Irene/James
+> Louis, William, Irene/James
 
 - ‎ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴅᴇᴍᴏɴ ꜱᴄʜᴏᴏʟ ɪʀᴜᴍᴀ-ᴋᴜɴ (ᴍᴀɪʀɪᴍᴀꜱʜɪᴛᴀ ɪʀᴜᴍᴀ-ᴋᴜɴ)
 > Opera, Lied, Asmodeus
