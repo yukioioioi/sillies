@@ -164,13 +164,13 @@
 > Doppo, Ramuda, Dice, Gentaro
 ‎
 - ‎18ᴛʀɪᴘ
-> ???
+> Netaro, Renga, Toi
 
-- ‎ᴇɴꜱᴇᴍʙʟᴇ ꜱᴛᴀʀꜱ (ᴋɪɴᴅᴀ ɴᴇᴡ)
+- ‎ᴇɴꜱᴇᴍʙʟᴇ ꜱᴛᴀʀꜱ
 > Mao, Hajime, Hinata, Nazuna
 
 - ‎ᴀ3! ᴀᴄᴛ! ᴀᴅᴅɪᴄᴛ! ᴀᴄᴛᴏʀꜱ!
-> ???
+> Hisoka, Misumi, Tsuzuru 
 
 - ‎ʙᴏʏꜱ ʙᴇ ᴍᴀɪᴅ
 > Ranto, Kiku
