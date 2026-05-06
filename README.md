@@ -179,7 +179,7 @@
 > Luka, Hyuna, Hyunwoo
 
 - ‎ʙᴜɴɢᴏ ꜱᴛʀᴀʏ ᴅᴏɢꜱ
-> Sigma, Kyuusaku, Gin, Tachihara
+> Sigma, Kyuusaku, Gin, Tachihara, Tetchou 
 
 - ‎ᴠᴀɴɪᴛᴀꜱ ɴᴏ ᴄᴀʀᴛᴇ
 > Noè, Astolfo, Louis, Johann
