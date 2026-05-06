@@ -52,17 +52,17 @@
 <summary> ​​𝘼𝙗𝙤𝙪𝙩 𝙈𝙚 .ᐟ </summary>
 
 ## 𝒯𝒶𝓂𝒶𝓀𝒾 𝒴𝑜𝓉𝓈𝓊𝒷𝒶 𝒪𝓈𝒽𝒾 𝒶𝓃𝒹 𝑅𝒾𝒶𝓀𝑜 ୭˚. ᵎᵎ 
-> - I don't have much merch of him yet, but I've been saving up and collecting. (Nobody knows abt this cuz the fandom is kinda niche...)
-> - Selective-sharing,, I sometimes include Sogo Osaka, but I'm okay sharing for him. (Gotta include the boyfriends heh...)
+> - I don't have much merch of him yet, but I've been saving up and collecting. (Nobody knows abt this cuz this is my first time being open about it...plus the fandom is kinda niche..)
+> - I yumeship him too (OCxCC) *_Selective-sharing_*,, I also include Sogou Osaka but I'm okay sharing with him (Never separating MEZZO'' chat)
 > - Retired <ins>Hanamaru Kunikida Riako</ins>,, **I STILL LOVE MY WIFE !!**
 
 ## ​​𝗠𝘆 𝗕𝗮𝘀𝗶𝗰 𝗜𝗻𝗳𝗼 ── .✦​
 
-- 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚔𝚗𝚘𝚠𝚗 𝚊𝚜 𝙺𝚒𝚘 𝚘𝚛 𝚈𝚞𝚔𝚒𝚘, 𝚈𝚞𝚔𝚒 𝚒𝚜 𝚖𝚢 𝚘𝚕𝚍 𝚗𝚊𝚖𝚎 𝚋𝚞𝚝 𝙸'𝚖 𝚊𝚕𝚜𝚘 𝚘𝚔𝚊𝚢 with it
+- 𝙸'𝚖 𝚖𝚘𝚛𝚎 𝚔𝚗𝚘𝚠𝚗 𝚊𝚜 𝚈𝚞𝚔𝚒𝚘 𝚘𝚛 𝙺𝚒𝚘, 𝚋𝚞𝚝 𝚈𝚞𝚔𝚒 𝚒𝚜 𝚊𝚕𝚜𝚘 𝚘𝚔
 > Pet names are ok w me (?) But only if we're close.
 - 𝙲𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚞𝚗𝚍𝚎𝚛 𝟷𝟾, **𝚜𝚘 𝚒𝚠𝚌 !**
 - 𝙸 𝚍𝚘𝚗'𝚝 𝚖𝚒𝚗𝚍 <ins>𝚊𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜</ins>
-- 𝙸𝙽𝙵𝙹 ,, 𝙻𝚎𝚘 ,, 𝙵𝚒𝚕𝚒𝚙𝚒𝚗𝚘
+- 𝙸𝙽𝙵𝙿-𝚃 ,, 𝙻𝚎𝚘 ,, 𝙵𝚒𝚕𝚒𝚙𝚒𝚗𝚘
 - 𝙵𝚕𝚞𝚎𝚗𝚝(?) 𝚒𝚗 𝚎𝚗𝚐𝚕𝚒𝚜𝚑, 𝚋𝚞𝚝 𝙸 𝚐𝚎𝚝 𝚛𝚊𝚝𝚑𝚎𝚛 𝚕𝚊𝚣𝚢 𝚜𝚘 𝙸 𝚘𝚏𝚝𝚎𝚗 𝚝𝚢𝚙𝚎 𝚠𝚒𝚝𝚑 𝚠𝚛𝚘𝚗𝚐 𝚐𝚛𝚊𝚖𝚖𝚊𝚛 𝚘𝚛 𝚜𝚙𝚎𝚕𝚕𝚒𝚗𝚐𝚜. 𝙸 𝚊𝚕𝚜𝚘 𝚛𝚊𝚛𝚎𝚕𝚢 𝚜𝚙𝚎𝚊𝚔 𝚝𝚊𝚐𝚊𝚕𝚘𝚐/𝚏𝚒𝚕𝚒𝚙𝚒𝚗𝚘 𝚋𝚞𝚝 𝚢𝚎𝚜, 𝙸 𝚌𝚊𝚗 𝚜𝚙𝚎𝚊𝚔 𝚊𝚗𝚍 𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍 𝚠𝚎𝚕𝚕.
 ### **Date I Spawned: Aug/11**
 
