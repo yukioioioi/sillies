@@ -53,7 +53,7 @@
 
 ## 𝒯𝒶𝓂𝒶𝓀𝒾 𝒴𝑜𝓉𝓈𝓊𝒷𝒶 𝒪𝓈𝒽𝒾 𝒶𝓃𝒹 𝑅𝒾𝒶𝓀𝑜 ୭˚. ᵎᵎ 
 > - I don't have much merch of him yet, but I've been saving up and collecting. (Nobody knows abt this cuz this is my first time being open about it...plus the fandom is kinda niche..)
-> - I yumeship him too (OCxCC) *_Selective-sharing_*,, I also include Sogou Osaka but I'm okay sharing with him (Never separating MEZZO'' chat)
+> - I yumeship him too (OCxCC) *_Selective-sharing_*,, I also include Sogo Osaka but I'm okay sharing with him (Never separating MEZZO'' chat)
 > - Retired <ins>Hanamaru Kunikida Riako</ins>,, **I STILL LOVE MY WIFE !!**
 
 ## ​​𝗠𝘆 𝗕𝗮𝘀𝗶𝗰 𝗜𝗻𝗳𝗼 ── .✦​
@@ -158,7 +158,7 @@
 > Shiki, Nayuta, Kanata
 
 - ‎ɪᴅᴏʟɪꜱʜ7
-> Tamaki, Sogou, Isumi, Tenn
+> Tamaki, Sogo, Isumi, Tenn
 ‎
 - ‎ʜʏᴘɴᴏꜱɪꜱ ᴍɪᴄ
 > Doppo, Ramuda, Dice, Gentaro
@@ -205,7 +205,7 @@
 - ‎ᴛɪᴀɴ ɢᴜᴀɴ ᴄɪ ꜰᴜ (ʜᴇᴀᴠᴇɴ ᴏꜰꜰɪᴄɪᴀʟ'ꜱ ʙʟᴇꜱꜱɪɴɢ)
 > Xie Lian, Mu Quing, Feng Xin
 ‎
-### + More, will update soon?
+### Err, I forgot- Just check straw page for more.
   
 </details>
 
@@ -213,4 +213,4 @@
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-# That's all, thx for reading !! [atabook & strawpage coming soon]
+# That's all, thx for reading !! [atabook coming soon]
