@@ -205,7 +205,7 @@
 - ‎ᴛɪᴀɴ ɢᴜᴀɴ ᴄɪ ꜰᴜ (ʜᴇᴀᴠᴇɴ ᴏꜰꜰɪᴄɪᴀʟ'ꜱ ʙʟᴇꜱꜱɪɴɢ)
 > Xie Lian, Mu Quing, Feng Xin
 ‎
-### Err, I forgot- Just check straw page for more,, (Might be slightly different but as long as I mentioned them then they're my fav!?
+### Err, I forgot- Just check straw page for more,, (The list might be slightly different there but as long as they're mentioned then they're also my fav!)
   
 </details>
 
